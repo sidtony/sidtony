@@ -1,6 +1,6 @@
 <p dir="auto">⠀</p>
 <div align="center" dir="auto">
-<p align="center"><img src="https://i.postimg.cc/qMHStFyf/20E28A1.webp"></p>
+<p align="center"><img src="https://i.postimg.cc/vThrZD5t/20E28A1.jpg"></p>
   <br/>
   <div align="center" dir="auto">
 

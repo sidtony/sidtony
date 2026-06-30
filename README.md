@@ -1,6 +1,6 @@
 <p dir="auto">⠀</p>
 <div align="center" dir="auto">
-<p align="center"><img src="https://i.postimg.cc/7LWXDVwS/snaptik-7535101000906984726-2-v2-(1).jpg"></p>
+<p align="center"><img src="https://i.postimg.cc/4dwfmm2m/21b1208d0f86017af57085ada8b2fa6e.jpg"></p>
   <br/>
   <div align="center" dir="auto">
 
